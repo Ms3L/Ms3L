@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ms3L from Manila 🇵🇭 Been here for awhile now but haven't really explore much here. But being here is such a pleasure!
+- 👋 Hi, I’m @Ms3L from Manila 🇵🇭 Been here for awhile now but haven't really explored much here. Being here is such a pleasure!
 - 👀 I’m interested in creating mobile apps
 - ❤️ I really love to create webpages and do generative arts
 - 🌱 I’m currently learning about things that would help me grow in my field of work.
